@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning OpenCV in AI<br><br>🤝 I’m looking for help with Computer Vision<br><br>📝 I regularly read Papers on AI, ML AND Computer Vision<br><br>💬 Ask me about Machine Learning, Artificial Intelligence<br><br>📫 How to reach me Sakthiaswin1234@gmail.com<br><br>📄 Know about my experiences: https://drive.google.com/file/d/1Rz9wDtQJj3T2gn4PwY9mUTL6rlzjqZja/view?usp=sharing
+🌱 Computer Vision | Machine Learnig | AI <br><br>🤝 I’m looking for help with Computer Vision<br><br>📝 I regularly read Papers on AI, ML AND Computer Vision<br><br>💬 Ask me about Machine Learning, Artificial Intelligence<br><br>📫 How to reach me Sakthiaswin1234@gmail.com<br><br>📄 Know about my experiences: https://drive.google.com/file/d/1Rz9wDtQJj3T2gn4PwY9mUTL6rlzjqZja/view?usp=sharing
 
 
 ## 🌐 Socials:
